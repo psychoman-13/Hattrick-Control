@@ -212,4 +212,4 @@ Hattrick Control is offered as a full free version with all features and updates
 Take control of your football management journey today! Download Hattrick Control for free and lead your team to success!
 
 ---
-**Last updated:** 2026-10-24 01:26:37 UTC
+**Last updated:** 2026-10-24 07:04:29 UTC
